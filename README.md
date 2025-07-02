@@ -35,8 +35,8 @@
 ---
 
 ### 📫 Contact Me
-- 📧 **erhanbilir@example.com**
-- 💼 [LinkedIn](https://www.linkedin.com/in/erhanbilir/)
+- 📧 **eturanbilir@outlook.com*
+- 💼 [LinkedIn](https://www.linkedin.com/in/erhanturanbilir/)
 
 ---
 
